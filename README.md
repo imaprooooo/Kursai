@@ -1,2 +1,3 @@
-# Kursai
-kurs ai
+*PRO*
+
+i am a pro, n00b
